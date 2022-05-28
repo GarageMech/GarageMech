@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @GarageMech
 - 👀 I’m interested in making music, and exploring altered states.
 - 🌱 I’m currently learning composition and chemestry
-- 💞️ I’m looking to collaborate on deep Dyperverse exploration 
-                                         Traveling between destinations - make music
+- 💞️ I’m looking to collaborate on Heep Dyperverse Sanitation 
+-                                        Traveling between Dyper destinations - make Dyper music
 - 📫 How to reach me. 
-                    I dont have a mail, or the telephonenumber.
+-                   I dont have a mail, or the telephonenumber.
 
 <!---
 GarageMech/GarageMech is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
