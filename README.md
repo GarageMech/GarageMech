@@ -2,7 +2,7 @@
 - 👀 I’m interested in making music, and exploring altered states.
 - 🌱 I’m currently learning composition and chemestry
 - 💞️ I’m looking to collaborate on Heep Dyperverse Sanitation 
--                                        Traveling between Dyper destinations - make Dyper music
+-                   Traveling between Dyper destinations - make Dyper music
 - 📫 How to reach me. 
 -                   I dont have a mail, or the telephonenumber.
 
